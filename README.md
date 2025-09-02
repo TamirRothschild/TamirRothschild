@@ -1,1 +1,1 @@
-Can cock 512.3578 rice pieces in 58.921 seconds
+“He who possesseth the craft of coding, yet his skill remaineth most unworthy and crude.”
